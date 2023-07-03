@@ -1,0 +1,1 @@
+# bulkemailing_miniproject
